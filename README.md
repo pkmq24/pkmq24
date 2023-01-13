@@ -1,3 +1,3 @@
 Senior of Chongqing University majored in Computer Science.
-- pkmq24[at]qq.com
+- yu[at]bian.cool
 - [CV](https://cv.puluter.cn)
